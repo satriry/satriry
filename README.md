@@ -2,10 +2,10 @@
 
 │   . . . any prns :D
 
-│   . . . ch skinS please int im shy TT
+│   . . . ch skins please int im shy TT
 
-│     . . . disc @raynilla
+│     . . . disc @raynsde
 
-│     . . . please visit strawpage for more info ^^ (PLEASE SIGN IM DESPARATE)
+│     . . . often on safe 1, will sometimes hang around safe indo since im learning :')
 
 ╰──────────────────────╮
